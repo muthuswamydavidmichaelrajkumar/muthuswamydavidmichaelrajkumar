@@ -1,8 +1,8 @@
 # How to Pray
 
 In the broadest sense, to pray is to talk to God. 
-The term to pray is now often used to refer to religious prayers: to commune with a deity that you believe in. 
-While the rituals and conventions of prayer may vary widely, the intention is the same--to renew one's spiritual connection with God Almighty.
+The term to pray is now often used to refer to religious prayers: to commune with a deity that we believe in. 
+While the rituals and conventions of prayer may vary widely, the intention is the same--to renew our spiritual connection with God Almighty.
 
 ![Prayer is universal](/img/pray1.png)
 
@@ -17,7 +17,7 @@ Here are some reasons why one should pray.
 * Pray and acknowledge that God is Sovereign and Almighty.
 * Pray because it is from God that we receive everything. So thank God for all the blessings.
 * Pray confessing our sins and asking God for forgiveness.
-* Pray for understanding and wisdom
+* Pray for understanding and wisdom.
 * Pray that God's will be done in each of our lives. Follow God's path because that is best.
 
 
@@ -29,7 +29,7 @@ Here are some reasons why one should pray.
 4. Fill our minds with the good things God has given to us in the days gone by.
 5. Have faith that God will give us what we need, if it is pleasing to God, and if God thinks we need it.
 
-![Talk to God](/img/pray2.png)
+![Talk to God](/img/pray2.jpg)
 
 ## How do we pray?
 
@@ -47,8 +47,8 @@ If you want to pray, here is a guideline to follow:
 We can easily remember this guideline by the word _ACTS_.
 
 God wants us to talk to Him. He wants to commune with us because He created us, knows everything about us, and loves us. Be truthful with God. Its OK to pray even when we are angry, upset or discouraged. 
-
 He understands. He comforts us then if only we pray.
 
 Pray not just because we need something, but because we have a moral duty to be thankful to God for the blessings He loads us with, each day. 
 
+>> Thank you Lord for your blessings on me.
