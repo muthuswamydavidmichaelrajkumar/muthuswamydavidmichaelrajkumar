@@ -12,7 +12,7 @@ While the rituals and conventions of prayer may vary widely, the intention is th
 
 Says it all doesn't it?  Prayer is the key to the heart of God. Prayer is the only way to a real and personal relationship with God.  
 
-Here are some reasons why one should pray.
+Here are some reasons why we should pray.
 
 * Pray and acknowledge that God is Sovereign and Almighty.
 * Pray because it is from God that we receive everything. So thank God for all the blessings.
