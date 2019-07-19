@@ -10,7 +10,7 @@ While the rituals and conventions of prayer may vary widely, the intention is th
 ## Why should we pray?
 > Prayer moves the hands that move the world.
 
-Says it all doesn't it?  Prayer is the key to the heart of God. Prayer is the only way to a real and personal relationship with God.  
+Says it all, does it not?  Prayer is the key to the heart of God. Prayer is the only way to a real and personal relationship with God.  
 
 Here are some reasons why we should pray.
 
@@ -34,7 +34,7 @@ Here are some reasons why we should pray.
 ## How do we pray?
 
 Prayer is communing with God. Both God and us talk to each other. We can pray in various ways - through singing, through dance, through just shouting it aloud, and through tears as well. 
-We can pray in whatever language we want. God understands all languages. Remember, God is our creator. God is not looking at mere words, but looks deep in our hearts. God examines hearts. 
+We can pray in whatever language we want. God understands all languages. Remember, God is our creator. God does not look at mere words, but looks deep in our hearts. God examines hearts. 
 And this is why God understands everything, even if we cannot find the words to pray.
 
 If you want to pray, here is a guideline to follow:
